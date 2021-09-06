@@ -8,4 +8,4 @@ Team player with strong skills in the coordination of international and multicul
 Lived and worked remotely in over 20 countries and for me it’s a huge benefit to understand people from all over the world.
 Conference and motivational speaker.
 
-All references available on a request.
+
